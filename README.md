@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Farox120210 da
-- 👀 I’m interested in ...da
+- 👀 I’m interested in ...ehh
 - 🌱 I’m currently learning ...da
 - 💞️ I’m looking to collaborate on ...da
 - 📫 How to reach me ...da
